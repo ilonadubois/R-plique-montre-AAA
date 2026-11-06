@@ -10,7 +10,7 @@ Selon cette nomenclature, les copies de classe A utilisent des matériaux bas de
 
 ## L'essor des « super clones » : une nouvelle génération de copies
 
-L'industrie de la contrefaçon a franchi un cap. Une enquête récente a révélé que certaines **montre de luxe fausse** sont désormais si sophistiquées qu'elles trompent les employés de boutiques officielles. Des journalistes ont acheté trois fausses Rolex pour un total d'environ 1 700 dollars et ont emmené l'une d'elles dans une boutique Rolex à Londres, où le personnel a ajusté le bracelet sans détecter la supercherie
+L'industrie de la contrefaçon a franchi un cap. Une enquête récente a révélé que certaines **montre de luxe fausse** sont désormais si sophistiquées qu'elles trompent les employés de boutiques officielles. Des journalistes ont acheté trois fausses Rolex pour un total d'environ 1 700 dollars et ont emmené l'une d'elles dans une boutique Rolex à Londres, où le personnel a ajusté le bracelet sans détecter la supercherie. [Voir ici](https://gobezel.com/ref/fr-m7k2q9x4) pour plus de détail.
 
 Ces « super clones » reproduisent des détails infimes des montres authentiques, y compris les mouvements, les mécanismes de bracelet et les dispositifs anti-contrefaçon. Les fabricants ont même commencé à intégrer des balanciers libres dans les mouvements clonés, supprimant ainsi un moyen traditionnel de distinguer une copie d'un original
 
